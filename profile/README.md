@@ -10,6 +10,6 @@
 
 👩‍💻 Useful resources - go deep in each folder and find the informations you need. Didn't find something you were looking for OR want to ask us some questions? *ama@futureland.live*
 
-🍿 Fun facts - we have 40 years experience, serial entrepreneurs, willing to build the hobbyist dream ! S2
+🍿 Fun facts - we have 40+ years professional experience, serial entrepreneurs, puppy parents, developers, innovators, business person, willing to build the hobbyist dream ! S2
 
 🧙 BECOME A DREAMER WITH US !!!
