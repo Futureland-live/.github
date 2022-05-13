@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🙋‍♀️ What is Futureland ? - we want to create a platform where everyone that has an idea WANTS SO BAD to publis and share with the community, and everybody is willing to push those ideas further to have projects become REAL
+🙋‍♀️ What is Futureland ? - we want to create a platform where everyone that has an idea WANTS SO BAD to publish and share with the community, and everybody is willing to push those ideas further to have projects become REAL
 
 🌈 Contribution guidelines - we are looking for 3 contributors / roles that will work together with the founding team:
 
