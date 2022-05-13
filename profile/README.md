@@ -8,7 +8,7 @@
 2. Designer: will help us prototype different user-friendly interfaces
 3. Community Manager: will help us explore web3, Twitter, Instagram, Art Design, templates, color scheme, etc.
 
-👩‍💻 Useful resources - go deep in each folder and find the informations you need. Didn't find something you were looking for OR want to ask us some questions? *questions@futureland.live*
+👩‍💻 Useful resources - go deep in each folder and find the informations you need. Didn't find something you were looking for OR want to ask us some questions? *ama@futureland.live*
 
 🍿 Fun facts - we have 40 years experience, serial entrepreneurs, willing to build the hobbyist dream ! S2
 
