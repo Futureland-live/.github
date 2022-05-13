@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-🙋‍♀️ What is Futureland - we want to create a platform where everyone that has an idea WANTS SO BAD to publis and share with the community, and everybody is willing to push those ideas further to have projects become REAL
+🙋‍♀️ What is Futureland ? - we want to create a platform where everyone that has an idea WANTS SO BAD to publis and share with the community, and everybody is willing to push those ideas further to have projects become REAL
 🌈 Contribution guidelines - we are looking for 3 contributors / roles that will work together with the founding team:
 1. Developer: will help us push do the hard work of coding 24/7 and propose new functions along with our CTO
 2. Designer: will help us prototype different user-friendly interfaces
